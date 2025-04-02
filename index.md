@@ -18,11 +18,11 @@ April 4, 2025 - Indianapolis Statehouse, 4 to 6 https://www.facebook.com/events/
 
 Please contact us at:
 
-# Brian Jonasen, Indiana 50501 Veteran Coordinator
-## Email: brian.s.jonasen@gmail.com
-## Phone / Text: 240 434 8476
-## Facebook: Indiana 50501 Veterans https://www.facebook.com/groups/685904467436476
-## Bluesky: Brian Jonasen@junnyb.bsky.social 
+### Brian Jonasen, Indiana 50501 Veteran Coordinator
+#### Email: brian.s.jonasen@gmail.com
+#### Phone / Text: 240 434 8476
+#### Facebook: Indiana 50501 Veterans https://www.facebook.com/groups/685904467436476/
+#### Bluesky: https://bsky.app/profile/junnyb.bsky.social
 
 ## <a name="faq"></a> FAQ
 
