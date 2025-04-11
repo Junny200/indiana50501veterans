@@ -1,4 +1,4 @@
-# Indiana 50501Veterans Website
+# Indiana 50501 Veterans Website
 
 ## <a name="about"></a> About
 
@@ -12,7 +12,7 @@ We protest alongside Indiana 50501 but we have our own distinct identity, websit
 
 Our next event is:
 
-* April 4, 2025 - [Indianapolis Statehouse, 4 to 6](https://www.facebook.com/events/697628629480456)
+* April 19, 2025 - [Indianapolis Statehouse, 12 to 4](https://www.facebook.com/groups/1134647841476550/)
 
 ## <a name="contact"></a> Contact
 
@@ -42,6 +42,12 @@ Please contact us at:
 ### Q: What are you trying to accomplish?
 
 #### A: For Veterans and Civillians -- Visability, two-way Communications, A Call to Action, and to push back against an out of control regime that is punching down on its citizens. 
+
+#### CALL TO ACTION: 
+We served out of duty, love of country, and to be part of something much greater than ourselves.  
+We swore an oath and we are honor bound to support and defend the constitution, “the idea that is America” (Gen Milley).  
+We still honor that oath as veterans and citizens and are being called back into action to push back on autocracy and take back our democracy before it is too late.  
+We ask that since you made the decision to be here to renew your promise, to find any and all ways you can get more active and involved
 
 ## <a name="join"></a> Join
 
