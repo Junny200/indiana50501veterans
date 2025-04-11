@@ -12,7 +12,7 @@ We protest alongside Indiana 50501 but we have our own distinct identity, websit
 
 Our next event is:
 
-* April 4, 2025 - [Indianapolis Statehouse, 4 to 6](https://www.facebook.com/events/697628629480456)
+* April 19, 2025 - [Indianapolis Statehouse, 12 to 4](https://www.facebook.com/events/697628629480456)
 
 ## <a name="contact"></a> Contact
 
