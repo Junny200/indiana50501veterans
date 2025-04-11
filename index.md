@@ -42,6 +42,12 @@ Please contact us at:
 
 #### A: For Veterans and Civillians -- Visability, two-way Communications, A Call to Action, and to push back against an out of control regime that is punching down on its citizens. 
 
+#### CALL TO ACTION: 
+We served out of duty, love of country, and to be part of something much greater than ourselves.  
+We swore an oath and we are honor bound to support and defend the constitution, “the idea that is America” (Gen Milley).  
+We still honor that oath as veterans and citizens and are being called back into action to push back on autocracy and take back our democracy before it is too late.  
+We ask that since you made the decision to be here to renew your promise, to find any and all ways you can get more active and involved 
+
 ## <a name="join"></a> Join
 
 Please just come to an event and talk to us. 
